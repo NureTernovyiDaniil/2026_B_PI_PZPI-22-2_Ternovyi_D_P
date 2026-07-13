@@ -1,1 +1,0 @@
-# 2026_B_PI_PZPI-22-2_Ternovyi_D_P
